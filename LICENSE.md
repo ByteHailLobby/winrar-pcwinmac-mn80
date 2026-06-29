@@ -1,4 +1,4 @@
-# 
+# Elite WinRAR presets for Mac OS | Free WinRAR presets for PC Windows. Featuring desktop organization and version history — optimized for maximum performance on every platform.
 
 
 
